@@ -34,5 +34,6 @@
 
 
 
+![Si-lab2-tabela2](https://user-images.githubusercontent.com/49499881/171911898-d2c6414e-0e2e-4024-831e-21d4f57e325b.jpg)
 
 
